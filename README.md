@@ -1,0 +1,1 @@
+# lgbtHater.sk
